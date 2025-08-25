@@ -8,7 +8,7 @@
 
 **BSc in Software Engineering**  
 *University of Southern Denmark (SDU), Sønderborg*  
-Expected: 2027
+2024 - 2027
 
 **Electrical Engineering – Telecommunications**  
 *Secondary Industrial School of Transport, Trnava, Slovakia*  
